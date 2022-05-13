@@ -1,0 +1,5 @@
+- opa meu nome e joao vitor smaniotto
+- meu gmail de contato e joao.smaniotto@esola.pr.gov.br
+- estou interesado em aprender e progamar 
+- 
+-
